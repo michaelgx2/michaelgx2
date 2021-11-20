@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @michaelgx2
+- 👀 I’m from ZuAn, a place that we do not watch our language and curse everyday.
+- 🌱 I’m your father.
+- 💞️ And your mother is dead.
+- 📫 Thank you.
